@@ -1,0 +1,1 @@
+© 2020 Activision Publishing, Inc. ACTIVISION and CALL OF DUTY are trademarks of Activision Publishing, Inc. All other trademarks and trade names are the properties of their respective owners. By downloading, installing or using this App, you agree to Activision's privacy policy and terms of us, as may be updated by Activision from time to time.
